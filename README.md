@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mobile.
-- 👀 I’m interested in number, coding, gaming and 
+- 👀 I’m interested in number, coding, gaming and movies.
 - 🌱 I’m currently learning about Applied Statistics in Science faculty at KMITL.
 - 💞️ I’m studying at 42Bangkok.
 - 📫 You can reach me on Discord ---> Mabel#1212 ✨
